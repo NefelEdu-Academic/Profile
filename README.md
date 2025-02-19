@@ -13,6 +13,6 @@ The Academic Team at Nefel Education is dedicated to providing high-quality lear
 ✅ **Student Success Monitoring** – Tracking student progress and offering personalized support.  
 
 ## Get in Touch  
-For any academic inquiries or support, reach out to us at **[Insert Contact Email]**.  
+For any academic inquiries or support, reach out to us at **academic@nefel.education**.  
 
 📚 _Empowering students, one lesson at a time._  
